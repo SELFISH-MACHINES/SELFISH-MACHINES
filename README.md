@@ -1,3 +1,1 @@
-<img src="https://files.catbox.moe/5t6tan.jpg" width="100" height="100"> <img src="https://files.catbox.moe/q3zjjv.jpg" width="100" height="100"> <img src="https://files.catbox.moe/dmn2lm.jpg" width="100" height="100"> <img src="https://files.catbox.moe/r6740y.jpg" width="100" height="100"> <img src="https://files.catbox.moe/62twfo.jpg" width="100" height="100"> 
-
-<img src="https://files.catbox.moe/nqvnzv.jpg" width="100" height="100"> <img src="https://files.catbox.moe/ntj99c.jpg" width="100" height="100"> <img src="https://files.catbox.moe/suo20b.jpg" width="100" height="100"> <img src="https://files.catbox.moe/kiz8fc.jpg" width="100" height="100"> <img src="https://files.catbox.moe/w1yflw.jpg" width="100" height="100"> <img src="https://files.catbox.moe/vcakcd.jpg" width="100" height="100"> <img src="https://files.catbox.moe/df3czy.jpg" width="100" height="100">
+hey foreman, your mama's so fat that when her beeper goes off people think she's backing up!!
