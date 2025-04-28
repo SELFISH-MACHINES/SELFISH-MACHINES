@@ -1,1 +1,1 @@
-![](https://files.catbox.moe/ff6f6w.gif) ![](https://files.catbox.moe/3x7w2a.gif) ![](https://files.catbox.moe/zkj77c.gif) ![](https://files.catbox.moe/9yf1tz.gif)
+<img src="https://files.catbox.moe/ar30bf.jpg" width="250" height="260"> <img src="https://files.catbox.moe/4hlr0y.jpg" width="250" height="260"> <img src="https://files.catbox.moe/0n15cg.jpg" width="250" height="260"> <img src="https://files.catbox.moe/ducyf5.webp" width="250" height="260">
