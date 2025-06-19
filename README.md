@@ -1,4 +1,4 @@
-![](https://files.catbox.moe/k9g0b9.gif)
+![](https://files.catbox.moe/m7ubj2.jpeg)
 
 
 [Rentry](https://rentry.co/piercingchemicalsirens) [Atabook](https://piercetheveil.atabook.org/) [SpaceHey](https://spacehey.com/beforetoday) [StrawPage](https://killjoys.straw.page/) [Last.fm](https://www.last.fm/user/BEFORE-TODAY)
