@@ -1,4 +1,4 @@
-<img src=https://i.pinimg.com/originals/7e/65/f1/7e65f138929505920301a3189fa87c7b.gif width="200" height="200">
+<img src=https://files.catbox.moe/i1rqop.gif width="200" height="200">
 
 
 [Rentry](https://rentry.co/vivalaapocalypse) [Atabook](https://piercetheveil.atabook.org/) [SpaceHey](https://spacehey.com/beforetoday) [StrawPage](https://killjoys.straw.page/) [Last.fm](https://www.last.fm/user/BEFORE-TODAY)
